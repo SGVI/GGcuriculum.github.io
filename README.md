@@ -1,1 +1,0 @@
-# GGcuriculum.github.io
